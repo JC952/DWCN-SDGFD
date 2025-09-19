@@ -26,7 +26,7 @@
 
 ---
 
-![2.png](https://free.picui.cn/free/2025/09/18/68cc069156bca.png)
+![2.png](https://youke1.picui.cn/s1/2025/09/19/68cd5dc7c61d3.png)
 
 # 📄Citation
 
